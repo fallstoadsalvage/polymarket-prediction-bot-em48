@@ -1,4 +1,4 @@
-# 
+# new Polymarket Addon | arbitrage-detection + scalping-strategies offers the most advanced Polymarket addon, with arbitrage-detection and scalping-strategies. Ideal for
 
 
 
